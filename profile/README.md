@@ -1,4 +1,4 @@
-## 🚀 KU Rover Club 🚀
+## KU Rover Club 🚀
 
 > Do you like space? We do, and we want to build stuff to better explore it! 
 
